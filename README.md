@@ -1,0 +1,2 @@
+# fendi
+lojbo vlafendi tutci
